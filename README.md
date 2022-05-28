@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @KnightLiteKing
+- 👋 Hi, I’m @KnightLiteKing Knight Lite King or KLK.
 - 👀 I’m interested in Anime, Video Encoding, Web Development Crypto trading.
 - 🌱 I’m currently learning Web Development, Responsive UI Pages.
 - 💞️ I’m looking to collaborate on Anime Projects.
